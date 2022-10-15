@@ -4,7 +4,7 @@
 - 🌱 I’M CURRENTLY LEARNING GIT & GITHUB
 - 💬 ASK ME ABOUT GRAPHICS OR ANY TECH STUFF
 - 📫 HOW TO REACH ME  : 
-   ❥︎ Instagram  - [@neel_19450](https://instagram.com/neel_19450) 
+   ❥︎ Instagram  - [@pvtt_neel.2029](https://instagram.com/pvtt_neel.2029) 
 - 😄 PRONOUNS: HE/HIS
 <p align="middle"> <img src="https://komarev.com/ghpvc/?username=neelk19450&label=Profile%20Views&color=orange&style=flat-square" alt="neelk19450" /> </p>
 
